@@ -1,0 +1,2 @@
+# PALACC
+PALACC is a website for students from age 5 years and above for understanding of their talent, enhancement of their skills and helping students to analyse their earning potential by choosing their own profession through insights from PALACC. Every Palacian will be educated about education. Our only goal is to make sure every student on earth follows us, and we will make sure they follow their passion.
